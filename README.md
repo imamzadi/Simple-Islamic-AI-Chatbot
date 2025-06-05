@@ -1,1 +1,0 @@
-# Simple-Islamic-AI-Chatbot
